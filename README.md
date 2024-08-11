@@ -9,4 +9,3 @@ I'm from New Delhi and currently learning Deep Learning. I have a strong interes
 ## Connect with Me
 Feel free to reach out to me for collaboration or just a friendly chat!
  Linkedin-https://www.linkedin.com/in/karan-verma-0001772b1/
-Twitter/X- https://x.com/KaranVerma52026
